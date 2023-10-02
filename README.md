@@ -1,6 +1,6 @@
 Seja Bem Vindo ao meu Perfil
 
-Meu nome é Adryel Mendes Monteiro da Silva, (vulgo Muçulmano do Pack do Pé)
+Meu nome é Adryel Mendes Monteiro da Silva, vulgo Muçulmano do Pack do Pé
 sou estudante do 1 ano do ensino médio
 
 Se necessario entre em contato com:
