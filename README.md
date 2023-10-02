@@ -3,7 +3,7 @@ Seja Bem Vindo ao meu Perfil
 Meu nome é Adryel Mendes Monteiro da Silva
 sou estudante do 1 ano do ensino médio
 
-Para entrar em contato mande mensagem para:
+Se necessario entre em contato com:
 
 ###adryel.monteiro.silva@escola.pr.gov.br
 
